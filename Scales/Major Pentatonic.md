@@ -1,0 +1,1 @@
+![24699c3ffab020f1c2a85bf17082eefc.png](../_resources/24699c3ffab020f1c2a85bf17082eefc.png)
